@@ -16,6 +16,7 @@
 - 💬 Ask me about my experience with JavaScript, ReactJS, and NodeJS, or anything related to web development.
 - ⚡Team Leader in the Marketing Team for Managing Educational Platform from 2021 to 2024.
 - 💡Member of the Video Editing Team at a Photography Company from 2022 to 2024.
+- 💪 I work as a YouTube Channel Manager and SEO Specialist.
   
 
 ### Connect with Me :
